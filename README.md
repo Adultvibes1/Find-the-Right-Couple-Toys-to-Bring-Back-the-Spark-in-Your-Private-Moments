@@ -3,6 +3,7 @@
 Monotony in a couple's sex life often sets in after a few years of [**marriage**](https://www.adultvibes.in/12-for-couple). To keep the spark alive, there are plenty of accessories that can help. You can buy couple toys from any trusted online store, with discreet delivery straight to your door.
 
 
+<img width="1200" height="896" alt="spark-in-your-private-moments-poster" src="https://github.com/user-attachments/assets/c7bdd5ac-a20a-457c-801a-5ee85e558934" />
 
 
 
